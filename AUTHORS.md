@@ -1,1 +1,2 @@
 Information Management Group
+Manan Kanani
